@@ -1,0 +1,2 @@
+# ryz
+abone olun kekolar
